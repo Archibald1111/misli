@@ -1,4 +1,4 @@
-Azərbaycanın shttps://misli-az1.com/
+Azərbaycanın https://misli-az1.com/
 Bu yazı Sports.ru istifadəçisi tərəfindən yazılmışdır, istənilən fanat yazmağa başlaya bilər (burada edə bilərsiniz).
 
 Bizim tövsiyə etdiyimiz onlayn oyun provayderimiz əsas meyarlara cavab verməlidir
